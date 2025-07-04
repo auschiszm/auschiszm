@@ -1,2 +1,1 @@
 # ![smc_spriteskill2](https://github.com/user-attachments/assets/0488e13c-e199-4413-b162-2aeae39e088b) ***WELCOME, FOLKS***. . . <sub>to our PT github</sub>
-$${\color{blue}PT-centric \space strawpage \space is \space still \space WIP, \space but \space feel \space free \space to \space check \space our \space pronouns.cc \space and \space host's \space strawpage \space for \space now! \space (and \space sign \space our \space ATA...)}$$
